@@ -44,4 +44,4 @@
 
 ## Автор
 
-[Имя Фамилия] · [ссылка на LinkedIn / Telegram]
+Искандаров Вагиф · [Telegram: @eternal656](https://t.me/eternal656)
